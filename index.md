@@ -3,6 +3,9 @@
 🐇📖  
 
 
+## Dear Desire,
+> U glanced at my palm faced book, and I acted accordingly and developed my well zoned ida juju to balance that retro high.
+
 
 ## Meridian - Paul Celan (Edited)
 
