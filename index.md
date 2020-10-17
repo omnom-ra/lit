@@ -1,9 +1,6 @@
 # /udev/rand lit
-
-
-
-
-
+>
+>
 ## Meridian - Paul Celan (Edited)
 
 Etwas lag zwischen ihnen 
