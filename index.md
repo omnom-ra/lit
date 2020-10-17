@@ -3,7 +3,7 @@
 🐇📖  
 
 ## Dear Desire,
-> U glanced at my palm faced book, and I acted accordingly and developed my well zoned ida juju to balance that retro high.
+> U glanced at my palm faced book, and I acted accordingly to develop my well zoned ida juju to balance that retro high.
 
 ## Cappin Stripperien Faun
 - Driving in the central reservation, shaking like a free range roomba
