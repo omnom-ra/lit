@@ -6,9 +6,9 @@
 > U glanced at my palm faced book, and I acted accordingly and developed my well zoned ida juju to balance that retro high.
 
 ## Cappin Stripperien Faun
-Driving in the central reservation, shaking like a free range roomba
-Shaving off that horny high while she glanced at my shoe, to have a *niñX* not of mine 
-Call me when you want to have dimsum
+> Driving in the central reservation, shaking like a free range roomba
+> Shaving off that horny high while she glanced at my shoe, to have a *niñX* not of mine 
+> Call me when you want to have dimsum
 
 ## Meridian - Paul Celan (Edited)
 
