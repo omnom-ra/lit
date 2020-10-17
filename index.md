@@ -1,8 +1,8 @@
 # /udev/rand lit
 
-> (\_/)
-> ( •_•)
-> / >📖  
+🐇📖  
+
+
 
 ## Meridian - Paul Celan (Edited)
 
