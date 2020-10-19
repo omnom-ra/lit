@@ -2,6 +2,16 @@
 
 🐇📖  
 
+
+## Dear (Orange) Desire
+
+> They pontificated authenticity & sincerity,
+while I gazed at your writing intently.
+
+> Distant scripts with loose tongues popped, as you joted top down.
+
+> Caught in your web, skrt skrt!
+
 ## Dear Desire,
 > U glanced at my palm faced book, and I acted accordingly to develop my well zoned ida juju to balance that retro high.
 
