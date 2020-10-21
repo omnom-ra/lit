@@ -12,6 +12,7 @@ Dance around a cold body, and a cold warrior arrives
 Recited a rookie deed and yelled Hi! Body Falls!  
 Another tale and more dust  
 
+
 ---	
 
 
@@ -20,10 +21,12 @@ They pontificated authenticity & sincerity, while I gazed at your writing intent
 Distant scripts with loose tongues popped, as you joted top down.  
 Caught in your web, skrt skrt!  
 
+
 ---	
 
 ## Dear Desire,
 U glanced at my palm faced book, and I acted accordingly to develop my well zoned ida juju to balance that retro high.
+
 
 ---	
 
@@ -31,6 +34,7 @@ U glanced at my palm faced book, and I acted accordingly to develop my well zone
 Driving in the central reservation, shaking like a free range roomba  
 Shaving off that horny high while she glanced at my shoe, to have a *niñX* not of mine  
 Call me when you want to have dimsum  
+
 
 ---	
 
@@ -58,6 +62,7 @@ In der Eulenflucht, hier, die Gespräche, taggrau, der Grundwasserspuren
 
 Gras auseinandergeschrieben
 > Grass written asunder  
+
 
 ---	
 
