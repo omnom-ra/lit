@@ -4,34 +4,27 @@
 
 
 ## Eagle's Revenge
+Night winds rushing past cabin  
+Dead deer on a pole  
+Shots as a hollow yellow swoops by  
 
-Night winds rushing past cabin
-Dead deer on a pole
-Shots as a hollow yellow swoops by
-
-Dance around a cold body, and a cold warrior arrives
-Recited a rookie deed and yelled Hi! Body Falls!
-Another tale and more dust
-
+Dance around a cold body, and a cold warrior arrives  
+Recited a rookie deed and yelled Hi! Body Falls!  
+Another tale and more dust  
 
 
-
-## Dear (Orange) Desire
-
-> They pontificated authenticity & sincerity,
-while I gazed at your writing intently.
-
-> Distant scripts with loose tongues popped, as you joted top down.
-
-> Caught in your web, skrt skrt!
+## Dear (Orange) Desire,
+They pontificated authenticity & sincerity, while I gazed at your writing intently.   
+Distant scripts with loose tongues popped, as you joted top down.  
+Caught in your web, skrt skrt!  
 
 ## Dear Desire,
-> U glanced at my palm faced book, and I acted accordingly to develop my well zoned ida juju to balance that retro high.
+U glanced at my palm faced book, and I acted accordingly to develop my well zoned ida juju to balance that retro high.
 
 ## Cappin Stripperien Faun
-- Driving in the central reservation, shaking like a free range roomba
-- Shaving off that horny high while she glanced at my shoe, to have a *niñX* not of mine 
-- Call me when you want to have dimsum
+Driving in the central reservation, shaking like a free range roomba  
+Shaving off that horny high while she glanced at my shoe, to have a *niñX* not of mine  
+Call me when you want to have dimsum  
 
 ## Meridian - Paul Celan (Edited)
 
@@ -62,8 +55,8 @@ Gras auseinandergeschrieben
 
 
 ## Dear Scada Minty,
-- Sphinxes charging through Cisco nights
-- Shedding coats in the rain looking for loved ones
-- Chatty Babis lasting for softness
-- Binding Minotaurs preempting virtually  
-- Swell magpies reflecting smiles
+Sphinxes charging through Cisco nights  
+Shedding coats in the rain looking for loved ones  
+Chatty Babis lasting for softness  
+Binding Minotaurs preempting virtually  
+Swell magpies reflecting smiles  
