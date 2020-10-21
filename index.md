@@ -3,6 +3,19 @@
 🐇📖  
 
 
+## Eagle's Revenge
+
+Night winds rushing past cabin
+Dead deer on a pole
+Shots as a hollow yellow swoops by
+
+Dance around a cold body, and a cold warrior arrives
+Recited a rookie deed and yelled Hi! Body Falls!
+Another tale and more dust
+
+
+
+
 ## Dear (Orange) Desire
 
 > They pontificated authenticity & sincerity,
