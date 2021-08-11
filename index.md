@@ -81,3 +81,20 @@ Shedding coats in the rain looking for loved ones
 Chatty Babis lasting for softness  
 Binding Minotaurs preempting virtually  
 Swell magpies reflecting smiles  
+
+
+---
+
+## Id Instagram Dickz crisis
+Solving Chinese finger puzzles 
+Tears drips in the rain
+Sacred is bored 
+
+
+---
+
+## Dear Desire,
+While casting runes, dismissing reapproachments, I went searching for my muse.
+
+
+--
